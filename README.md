@@ -71,6 +71,9 @@
 ![7](https://github.com/user-attachments/assets/d77f9bdd-877a-41d3-869e-4a68101c4e85)
 
 
+# 7.27-8.2周报
+![1](https://github.com/user-attachments/assets/e05ef995-c8ef-4402-beab-34682177a923)
+
 
 
 
