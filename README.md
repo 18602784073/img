@@ -74,6 +74,9 @@
 # 7.27-8.2周报
 ![1](https://github.com/user-attachments/assets/e05ef995-c8ef-4402-beab-34682177a923)
 ![2](https://github.com/user-attachments/assets/5a2dfd77-e908-4469-9d98-552eb260c616)
+![3](https://github.com/user-attachments/assets/52d0917c-e07e-43e7-a2c6-83a6a17b949e)
+![4](https://github.com/user-attachments/assets/3f395653-7450-474c-898f-dc32ebe2b054)
+![5](https://github.com/user-attachments/assets/6469676e-138b-43fb-94e7-bfdd37ca03e1)
 
 
 
