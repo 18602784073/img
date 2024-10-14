@@ -150,6 +150,9 @@
 ![2](https://github.com/user-attachments/assets/7b3cf5f7-10e8-4223-8a32-00177571358c)
 
 
+# 9.28-10.4周报
+![1](https://github.com/user-attachments/assets/a3daed83-3678-45b0-95f4-70dc67e82564)
+![2](https://github.com/user-attachments/assets/4007b791-6e56-455c-9b93-e92d735fbef6)
 
 
 
